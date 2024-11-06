@@ -1,1 +1,0 @@
-# Covid-awareness-website
